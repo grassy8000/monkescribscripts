@@ -1,1 +1,3 @@
-# monkescribscripts
+# monkes crib scripts
+
+## **THESE SCRIPTS IS MADE BY TTGRASSY NOT YOU GIVE CREDITS!**
